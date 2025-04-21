@@ -16,7 +16,8 @@ Get a flat [60% off](https://www.wqwln8trk.com/6NK3674GN/TZ3X1FRR/) if you are l
 
 You will get full website migration assistance, an expert will guide you step by step throughout the process.
 
-[![|624x97|624x97](https://lh7-rt.googleusercontent.com/docsz/AD_4nXckpPZ1hMIaiA7J1EOGn1oM9d64Tvbwvez3NL0NyygRUNlb7B92qcfxsYWD1dY33Q_7-DAS4heR1z_VuMA2JocjPfHU6A3wokmBCkX2noPUDSwM_e4n7DbpTGUuo-3QXIGR4M6LGQ?key=jV7_1Mmt5yXON2fXj2urmWV6)](https://www.wqwln8trk.com/6NK3674GN/TZ3X1FRR/)
+![WPEngine coupon](https://www.wqwln8trk.com/6NK3674GN/TZ3X1FRR/)
+
 
 With this WPEngine coupon deal, you will get access to:
 
