@@ -1,3 +1,5 @@
+# How to Create a Free SSL Certificate (Step-by-Step Guide for 2025)
+
 In today’s world, trust matters. Whether you're running a personal blog or a business website, people want to feel safe when they visit. That little padlock in the browser? It builds trust.
 
 But here’s the good news — **you don’t have to pay to get it.**
